@@ -1,0 +1,1 @@
+# Infonetica_intern_task
